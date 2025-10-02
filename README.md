@@ -10,6 +10,6 @@ Jag har tidigare studerat Mediateknik, Journalistik, Kommunikation, Ljudteknik, 
 - Matlagning
 
 ## Hitta mig här:
-- [Instagram](https://www.instagram.com/trellatrello])
+- [Instagram](https://www.instagram.com/trellatrello)
 - [LinkedIn](https://se.linkedin.com/in/andreas-trella-90866117b)
 - [Facebook](https://www.facebook.com/atrella/?locale=sv_SE)
